@@ -3,5 +3,5 @@
 ![](https://gbgo.hcr2info.com/5ac4b8e4-4aae-4fe1-8ce9-9df534662589_Original.jpg)
 {: style="text-align: center;"}
 
-![](https://gbgo.hcr2info.com/20210622_204747.GIF)
+![](https://gbgo.hcr2info.com/20210622_204747.GIF)  
 {: style="text-align: center;"}
